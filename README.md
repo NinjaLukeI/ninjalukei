@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **luke_ibeachum@hotmail.co.uk**
 
-- ⚡ Fun fact **i still think deez jokes are funny**
+- ⚡ Fun fact **my lawyer is forbidding me from saying this fun fact sorry**
 
 <!--<h3 align="center">Connect with me:</h3>
 <p align="center">
